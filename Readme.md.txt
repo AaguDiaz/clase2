@@ -53,3 +53,5 @@ Que peleen, sino que corran
 Que esta banda no es de cine y la cinta se le borra
 Mano arriba atrevido y también la zorra
 Y el que no aguante presión que llame a la gorra
+
+Atentamente la banda de los millones
